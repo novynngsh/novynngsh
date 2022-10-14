@@ -4,7 +4,7 @@ I'm Novi Yuningsih!
 - 👀 I’m interested in network engineering and data analysis, especially in network security worlds!
 - 🌱 I’m currently learning about machine learning with python and malicious attacks prevention and analysis use Kali Linux Operation System.
 
-You can reach me via dm twitter/instagram or just send me an email, okay?
+You can reach me via dm twitter(@xx__noppe/instagram(@novynngsh) or just send me an email, okay?
 
 Thank You!✨
 
