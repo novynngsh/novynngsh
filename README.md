@@ -4,7 +4,7 @@ I'm Novi Yuningsih!
 - 👀 I’m interested in networking and machine learning programming, also information security worlds!
 - 🌱 I’m currently learning about machine learning with google collaboratory and malicious attacks prevention and analysis use Kali Linux Operation System.
 
-You can reach me via dm instagram(@novynngsh) / twitter(@xx__noppe) or just send me an email, okay?
+You can reach me via dm instagram / twitter (@novynngsh) or just send me an email, okay?
 
 Thank You!✨
 
