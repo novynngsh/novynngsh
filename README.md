@@ -1,10 +1,9 @@
 Hello👋
 
 I'm Novi Yuningsih!
-- 👀 I’m interested in networking and cybersecurity worlds!
-- 🌱 Currently, I work as graduate engineer, I write and draw PCD (Process Control Domain) documents also design for network architecture project.
+- 👀 I’m interested in computer networking and cybersecurity worlds!
 
-If you interested, you can reach me via dm instagram / twitter (@novynngsh) or just send me an email, okay?
+If interested, can reach me via dm instagram (@novynngsh) or just send me an email, okay?
 
 Thank You!✨
 
