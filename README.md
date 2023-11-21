@@ -1,7 +1,7 @@
 Hello👋
 
 I'm Novi Yuningsih!
-- 👀 I’m interested in computer networking and cybersecurity worlds!
+- 👀 Interesting in computer networking and cybersecurity worlds!
 
 If interested, can reach me via dm instagram (@novynngsh) or visit my page and send me an email, okay?
 
